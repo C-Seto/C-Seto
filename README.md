@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about 
 - 📫 How to reach me: ...
 - 😄 Pronouns: He/Him/His
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I've done an exchange term in Korea
 -->
